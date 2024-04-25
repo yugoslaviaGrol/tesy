@@ -33,7 +33,6 @@ permalink: /
  そんなあなた方には七大国をプレイすることをおすすめする。  
  もちろん**火遊びを好むプレイヤーは**中小国をプレイするのも良いだろう。  
 
- ![image](https://www.google.com/imgres?q=%E5%9B%BD%E6%97%97%20hoi4%20%E3%83%89%E3%82%A4%E3%83%84&imgurl=https%3A%2F%2Fchie-pctr.c.yimg.jp%2Fdk%2Fiwiz-chie%2Fque-13251023923%3Fw%3D200%26h%3D200%26up%3D0&imgrefurl=https%3A%2F%2Fdetail.chiebukuro.yahoo.co.jp%2Fqa%2Fquestion_detail%2Fq13251023923&docid=0LimuJXj5rYEVM&tbnid=wx8bwylH_0gP0M&vet=12ahUKEwjZ5ZKq_dyFAxVOk1YBHfpfDKkQM3oECGEQAA..i&w=200&h=133&hcb=2&ved=2ahUKEwjZ5ZKq_dyFAxVOk1YBHfpfDKkQM3oECGEQAA)  
 
  
 
